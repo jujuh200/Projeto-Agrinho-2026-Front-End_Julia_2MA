@@ -1,0 +1,1 @@
+# Projeto-Agrinho-2026-Front-End_Julia_2MA
